@@ -1,4 +1,5 @@
 # Lidziya Hramyka
+![Alt text](photo_2022-05-30_22-16-31-1.jpg)
 ## Contacts
 * __Location:__ Minsk, Belarus
 * __E-mail:__ hramykalu@gmail.com
